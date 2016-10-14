@@ -1,0 +1,2 @@
+ForexCoin Information:
+
